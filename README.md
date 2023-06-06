@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Odd1y
+- Welcome to my page!
+- 👀 I’m interested in Linux and everything!
+- 🌱 I’m currently learning how to read and write.
+- 💞️ I’m looking to collaborate on cool projects.
+- 📫 How to reach me: placeholder
